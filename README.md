@@ -1,0 +1,2 @@
+# retro-bowl-unblocked
+reduceimagesize
